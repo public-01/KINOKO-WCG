@@ -1,0 +1,2 @@
+# KINOKO-WCG
+KINOKO for 紳士漫畫
